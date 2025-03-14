@@ -16,3 +16,13 @@ Heute habe ich weiter an meiner Webseite für Bewerbungen gearbeitet. Dabei habe
 Heute werde ich meine Webseite für Bewerbungen fast vollständig abschließen. Die letzten Anpassungen werde ich jedoch erst vornehmen, wenn ich mich tatsächlich bewerbe, damit ich die Beschreibungen und Farbschemata gezielt an die jeweilige Firma anpassen kann. So kann ich sicherstellen, dass mein Profil optimal auf das Unternehmen abgestimmt ist und einen professionellen Eindruck hinterlässt.
 
 Sobald ich damit fertig bin, werde ich mich Modul 114 widmen, an dem ich weiterarbeiten muss. Insbesondere steht noch der Auftrag zur Steganografie aus, den ich beginnen werde. Dazu gehört, dass ich zunächst die zugehörige PowerPoint-Präsentation durcharbeite, um mir das notwendige Wissen anzueignen. Anschließend werde ich den Auftrag ausformulieren und erledigen, damit ich dieses Thema erfolgreich abschließen kann. Es wird also ein produktiver Tag, an dem ich sowohl meine Bewerbungsunterlagen als auch meine Ausbildungsinhalte weiter voranbringe.
+
+
+## 14.3.25
+Heute werde ich mir verschiedene Jobangebote aus meiner Branche anschauen und analysieren, welche Anforderungen die Unternehmen an Bewerber stellen. Dabei werde ich besonders darauf achten, welche Programmiersprachen, Tools oder Soft Skills häufig verlangt werden, um herauszufinden, welche Kenntnisse ich noch vertiefen oder neu erlernen muss, um meine Chancen auf eine Zusage zu erhöhen.
+
+Um meine Erkenntnisse strukturiert festzuhalten, erstelle ich eine detaillierte Excel-Tabelle. In dieser werde ich die verschiedenen Jobangebote mit den jeweiligen Anforderungen eintragen und sie nach Häufigkeit, Relevanz und meinem aktuellen Kenntnisstand sortieren. Dies hilft mir dabei, eine klare Übersicht darüber zu bekommen, welche Fähigkeiten mir noch fehlen und auf welche ich mich in den kommenden Wochen und Monaten konzentrieren sollte.
+
+Sobald ich die Tabelle fertiggestellt habe, werde ich sie dem Unternehmen schicken, das mir ein Projekt anvertrauen möchte. Dadurch kann ich nicht nur zeigen, dass ich mich intensiv mit den Anforderungen auseinandergesetzt habe, sondern auch verdeutlichen, wie ich meine Qualifikationen gezielt weiterentwickle, um bestmöglich auf die Aufgabe vorbereitet zu sein.
+
+
