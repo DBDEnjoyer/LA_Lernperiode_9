@@ -28,3 +28,6 @@ Sobald ich die Tabelle fertiggestellt habe, werde ich sie dem Unternehmen schick
 
 ## 21.3.25
 Heute werde ich mich intensiv mit den verbleibenden Quizzes des Moduls 114 auseinandersetzen und diese vollständig erledigen. Dafür nutze ich die Präsentationen zu den jeweiligen Themenbereichen, um sicherzustellen, dass ich den Stoff gut verstehe und die Quizzes erfolgreich abschließen kann. Sobald ich mit diesen Aufgaben fertig bin, werde ich mir Zeit nehmen, einen strukturierten und realistischen Plan aufzustellen, der alle Module enthält, die ich noch nachholen muss. Dadurch bekomme ich einen klaren Überblick über meine verbleibenden Aufgaben und kann gezielt vorgehen, um diese schrittweise abzuschließen.
+
+## 28.3.25
+Heute nehme ich mir die Zeit, einen detaillierten Plan zu erstellen, um alle noch ausstehenden Modulprüfungen, die ich nachholen muss, systematisch anzugehen. Dabei werde ich nicht nur festlegen, welche Inhalte ich wann lernen werde, sondern auch realistische Zeitfenster. Zusätzlich werde ich mich heute intensiv mit meinem LinkedIn-Profil beschäftigen. Ich möchte es auf den neuesten Stand bringen, meine bisherigen Erfahrungen und Kompetenzen übersichtlich darstellen und sicherstellen, dass es professionell und ansprechend wirkt.
